@@ -8,4 +8,4 @@
 - 🔭 I'm currently working on something coool
 - 🔎 Ask me about anything!
 - 📫 Reach me at: pgonse@gmail.com
-- 📽 I will be amazed to work on all kind of projects
+- 📽 Can't wait to work on all kind of projects
